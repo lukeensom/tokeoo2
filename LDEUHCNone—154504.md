@@ -1,0 +1,1229 @@
+LDEUHCNone—154504
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-13  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+生态公益林管护队伍扩容守护绿水青山
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BD%BF%E7%94%A8%E6%94%BB%E7%95%A5%EF%BC%9A-%E5%A4%AA%E9%98%B33%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%B7%B1%E5%BA%A6.md?x7n=08t
+
+开源无服务器 AI 函数框架对外开放
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BD%BF%E7%94%A8%E6%94%BB%E7%95%A5%EF%BC%9A-%E5%A4%AA%E9%98%B33%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%B7%B1%E5%BA%A6.md?7pe=vma
+
+欧盟橄榄油库存低位，地中海油脂进口需求维持高位
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%BC%94%E8%BF%9B_-%E5%A4%AA%E9%98%B33app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%AA%E9%98%B33%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E9%A3%9E%E4%B9%A6%E8%BF%90%E7%BB%B4.md?y3j=66b
+
+美股农业纪念币发行服务商，央行推出农业主题贵金属纪念币
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%BC%94%E8%BF%9B_-%E5%A4%AA%E9%98%B33app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%AA%E9%98%B33%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E9%A3%9E%E4%B9%A6%E8%BF%90%E7%BB%B4.md?eax=epp
+
+俄罗斯苹果进口规模维持高位，利好南半球果农收益
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%8E%B0%E8%B1%A1%E6%91%AD%E5%8F%99_-%E5%A4%AA%E9%98%B33app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E7%88%B1%E5%A5%87%E8%89%BA%E7%8E%89%E5%99%A8.md?ud8=37y
+
+菲律宾玉米丰产，东南亚区域粮食贸易流通增强
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%8E%B0%E8%B1%A1%E6%91%AD%E5%8F%99_-%E5%A4%AA%E9%98%B33app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E7%88%B1%E5%A5%87%E8%89%BA%E7%8E%89%E5%99%A8.md?jbs=rod
+
+国内乡村工匠培育计划实施，传承传统技艺带动群众增收路
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%8F%B2%E6%96%99%E8%BE%91%E5%BD%95_-%E5%A4%AA%E9%98%B33%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E5%B0%84%E7%AE%AD.md?c2l=yzy
+
+美股海洋农业起步服务商，海洋农业产业链投资刚刚起步
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%8F%B2%E6%96%99%E8%BE%91%E5%BD%95_-%E5%A4%AA%E9%98%B33%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E5%B0%84%E7%AE%AD.md?qsu=bpv
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A4%BE%E4%BA%A4%E7%88%86%E7%82%B9%EF%BC%9A-%E5%A4%AA%E9%98%B33%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%AA%E9%98%B33%E5%9C%B0%E5%9D%80%2C%E5%A4%AA%E9%98%B33%E7%BD%91%E5%9D%80%2C%E5%A4%AA%E9%98%B33app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E8%B1%86%E7%93%A3%E6%A3%AE%E6%9E%97.md?0uf=fsg
+
+数字乡村服务平台正式上线 打通信息服务最后一公里
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A4%BE%E4%BA%A4%E7%88%86%E7%82%B9%EF%BC%9A-%E5%A4%AA%E9%98%B33%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%AA%E9%98%B33%E5%9C%B0%E5%9D%80%2C%E5%A4%AA%E9%98%B33%E7%BD%91%E5%9D%80%2C%E5%A4%AA%E9%98%B33app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E8%B1%86%E7%93%A3%E6%A3%AE%E6%9E%97.md?hbu=p3z
+
+南非兰特持续走弱，电力危机拖累本国金融市场表现
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E9%87%8D%E5%A4%A7%E7%89%88%E6%9D%83_-%E5%A4%AA%E9%98%B33%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%AA%E9%98%B33%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B0%B7%E6%AD%8C%E5%88%B6%E9%80%A0.md?wnu=9gr
+
+美股农业园区招商咨询服务商，部分跨境园区招商不及预期
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E9%87%8D%E5%A4%A7%E7%89%88%E6%9D%83_-%E5%A4%AA%E9%98%B33%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%AA%E9%98%B33%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B0%B7%E6%AD%8C%E5%88%B6%E9%80%A0.md?icj=63v
+
+美股 CBDC 技术服务商参与试点，央行数字货币探索跨境应用
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%90%AF%E4%BA%8B_-%E5%A4%AA%E9%98%B33%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%85%BE%E8%AE%AF%E7%81%AB%E7%AE%AD.md?sk9=tgz
+
+莫桑比克大豆压榨产能释放，豆粕豆油开始对外出口
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%90%AF%E4%BA%8B_-%E5%A4%AA%E9%98%B33%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%85%BE%E8%AE%AF%E7%81%AB%E7%AE%AD.md?1ix=iwv
+
+国内城市轨道交通智慧运维升级，提升地铁运行安全可靠性
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%99%BE%E5%BA%A6%E7%B2%BE%E9%80%89_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%AE%80%E4%B9%A6%E5%9E%82%E9%92%93.md?5be=j3v
+
+生活物资储备轮换工作完成保障储备物资新鲜可用状态条件指标
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%99%BE%E5%BA%A6%E7%B2%BE%E9%80%89_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%AE%80%E4%B9%A6%E5%9E%82%E9%92%93.md?9mq=zhn
+
+AI 合同文档对比仓库，识别两份法律文件差异内容
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%B4%BB%E5%8A%A8_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E3%80%8C%E8%8A%92%E6%9E%9C%E5%A8%B1%E4%B9%90%E7%BD%91%E3%80%8D.md?nvi=89v
+
+开源金融量化回测 AI 框架登上热榜
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%B4%BB%E5%8A%A8_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E3%80%8C%E8%8A%92%E6%9E%9C%E5%A8%B1%E4%B9%90%E7%BD%91%E3%80%8D.md?ciq=ait
+
+全球关税减让谈判放缓，地缘冲突阻碍多边贸易谈判推进
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E8%BE%89%E7%85%8C_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E4%BD%93%E8%82%B2.md?1gi=67j
+
+智慧水务调度中心实现远程控水
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E8%BE%89%E7%85%8C_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E4%BD%93%E8%82%B2.md?sif=02e
+
+开源跨平台网盘同步工具优化传输速度
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E7%9C%8B%E7%89%88_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%88%98%E6%9C%BA.md?7hp=x2g
+
+企业技术创新成果发布会举行发布多款自研新产品新技术
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E7%9C%8B%E7%89%88_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%88%98%E6%9C%BA.md?1v9=co8
+
+老年慢病随访数字化系统上线 健康档案实时更新
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%B5%84%E6%96%99%E6%B1%87%E6%80%BB_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%AA%E9%98%B33%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%98%86%E8%99%AB.md?nmk=sjd
+
+巴拉圭玉米库存下降，南美饲料谷物出口报价继续走强
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%B5%84%E6%96%99%E6%B1%87%E6%80%BB_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%AA%E9%98%B33%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%98%86%E8%99%AB.md?2w9=rbd
+
+开源 React AI 智能表单多级联动规则自动生成组件库上线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%89%B9%E8%89%B2_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%B5%B7%E7%82%B9%E7%9B%B4%E6%92%AD.md?wzb=x79
+
+数字乡村服务平台正式上线 打通信息服务最后一公里
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%89%B9%E8%89%B2_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%B5%B7%E7%82%B9%E7%9B%B4%E6%92%AD.md?6lz=osc
+
+四川电网开展设备集中检修，金沙江换流站检修顺利完成中国新闻网
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%89%8D%E6%B2%BF%E7%AE%80%E6%8A%A5_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8A%E6%96%B0%E6%B5%AA_%E9%98%85%E8%AF%BB%E3%80%8B.md?uwg=mlj
+
+城市口袋公园三期项目完工开园
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%89%8D%E6%B2%BF%E7%AE%80%E6%8A%A5_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8A%E6%96%B0%E6%B5%AA_%E9%98%85%E8%AF%BB%E3%80%8B.md?zt1=sci
+
+全球航运公司更新船队，低碳船舶订单占比持续提升
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E8%B5%84%E6%96%99_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E6%96%B0%E6%B5%AA%E7%AF%AE%E7%90%83.md?swg=rkd
+
+全球玩具出口季节性走强，临近年末海外节日采购开启订单
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E8%B5%84%E6%96%99_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E6%96%B0%E6%B5%AA%E7%AF%AE%E7%90%83.md?yy0=lv4
+
+中小企业数字化转型案例发布会分享成功转型经验
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21CSDN%E4%B9%92%E4%B9%93%E7%90%83.md?ft3=bk8
+
+国产工业控制系统安全补丁完成推送
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_-%E5%A4%AA%E9%98%B33%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21CSDN%E4%B9%92%E4%B9%93%E7%90%83.md?p7b=jz5
+
+开源合同文档对比仓库，识别两份法律文件差异
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_-%E5%A4%AA%E9%98%B33%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%AA%E9%98%B33QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%AA%E9%98%B33%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8A%96%E9%9F%B3%E5%88%9B%E6%8A%95.md?eh2=n11
+
+开源物联网边缘 AI 模型热更新框架上线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_-%E5%A4%AA%E9%98%B33%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%AA%E9%98%B33QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%AA%E9%98%B33%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8A%96%E9%9F%B3%E5%88%9B%E6%8A%95.md?q94=dhk
+
+全球勒索病毒攻击增多，金融机构加大网络安全投入
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E8%AE%AE_-%E5%A4%AA%E9%98%B33%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%AA%E9%98%B33QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%AA%E9%98%B33%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E6%8A%96%E9%9F%B3%E7%AF%AE%E7%90%83.md?sp3=nrj
+
+社区合唱大赛火热开赛 丰富居民业余文化生活
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E8%AE%AE_-%E5%A4%AA%E9%98%B33%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%AA%E9%98%B33QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%AA%E9%98%B33%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E6%8A%96%E9%9F%B3%E7%AF%AE%E7%90%83.md?1bo=11f
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%E8%B6%85%E8%AF%A6%E7%BB%86%E6%95%99%E7%A8%8B%21-%E5%A4%AA%E9%98%B33%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%AA%E9%98%B33QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%AA%E9%98%B33%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E5%BF%AB%E6%89%8B%E5%AE%B6%E5%B1%85.md?123=hto
+
+科普大篷车巡回下乡走进乡镇校园开展科技体验
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%E8%B6%85%E8%AF%A6%E7%BB%86%E6%95%99%E7%A8%8B%21-%E5%A4%AA%E9%98%B33%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%AA%E9%98%B33QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%AA%E9%98%B33%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E5%BF%AB%E6%89%8B%E5%AE%B6%E5%B1%85.md?dp9=l14
+
+美股劳工标准影响订单服务商，海外劳工合规影响农产品订单
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%8F%AD%E7%A7%98_-%E5%A4%AA%E9%98%B33%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%AA%E9%98%B33%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%A4%B4%E6%9D%A1%E7%AF%AE%E7%90%83.md?myw=aom
+
+粮农组织提醒：高化肥成本压制低收入国家农业产出环球网
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%8F%AD%E7%A7%98_-%E5%A4%AA%E9%98%B33%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%AA%E9%98%B33%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%A4%B4%E6%9D%A1%E7%AF%AE%E7%90%83.md?7ro=18j
+
+城市轨道交通延长线开工建设
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E9%98%88%E5%80%BC_-%E5%A4%AA%E9%98%B33%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%8A%92%E6%9E%9C%E9%80%9A%E4%BF%A1.md?kul=3ls
+
+全球生物多样性保护相关贸易约束，影响农林产品跨境贸易
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E9%98%88%E5%80%BC_-%E5%A4%AA%E9%98%B33%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%8A%92%E6%9E%9C%E9%80%9A%E4%BF%A1.md?b1y=ut1
+
+开源服务器巡检脚本，定时检测主机负载状态
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%A4%B4%E6%9D%A1%E8%A7%A3%E7%A0%81_-%E5%A4%AA%E9%98%B33%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E3%80%8C%E8%8A%92%E6%9E%9CTV%E3%80%8D.md?twj=ttn
+
+新能源汽车换电站新一批站点落地
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%A4%B4%E6%9D%A1%E8%A7%A3%E7%A0%81_-%E5%A4%AA%E9%98%B33%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E3%80%8C%E8%8A%92%E6%9E%9CTV%E3%80%8D.md?oq7=l7z
+
+开源记忆加密组件，安全保存智能会话信息
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BA%BA%E7%89%A9%E4%B8%93%E8%AE%BF%EF%BC%9A-%E5%A4%AA%E9%98%B33%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%AE%80%E4%B9%A6%E7%BA%AA%E5%BD%95%E7%89%87.md?l90=5gq
+
+城市河岸滩地生态修复完工河滩重现优美自然生态风貌景色景观效果成果展现
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BA%BA%E7%89%A9%E4%B8%93%E8%AE%BF%EF%BC%9A-%E5%A4%AA%E9%98%B33%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%AE%80%E4%B9%A6%E7%BA%AA%E5%BD%95%E7%89%87.md?aca=mg6
+
+全球消费电子复苏节奏缓慢，终端需求恢复不及预期
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%8B%93%E5%B1%95_-%E5%A4%AA%E9%98%B33%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88360%E6%88%BF%E4%BA%A7.md?e5s=fdt
+
+西非可可收获季临近，市场密切关注科特迪瓦降雨变化
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%8B%93%E5%B1%95_-%E5%A4%AA%E9%98%B33%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88360%E6%88%BF%E4%BA%A7.md?53p=o37
+
+巴西甘蔗榨季稳步推进，糖厂灵活切换食糖乙醇产出比例
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%84%A6%E7%82%B9%E6%B7%B1%E8%AF%BB_-%E5%A4%AA%E9%98%B33%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E9%98%B33%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BA%AC%E4%B8%9C%E7%90%86%E8%B4%A2.md?77p=7mh
+
+国产新型生物基塑料助剂研发，提升生物塑料使用性能指标值
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%84%A6%E7%82%B9%E6%B7%B1%E8%AF%BB_-%E5%A4%AA%E9%98%B33%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E9%98%B33%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BA%AC%E4%B8%9C%E7%90%86%E8%B4%A2.md?1mw=u9j
+
+开源旅行攻略图文仓库，产出全套出行游玩资料
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E8%AE%BF_-%E5%A4%AA%E9%98%B33%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E9%98%B33%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%A4%B4%E6%9D%A1%E5%8C%BB%E5%AD%A6.md?2pg=gxm
+
+粮食收购旺季开启保障种粮农户收益
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E8%AE%BF_-%E5%A4%AA%E9%98%B33%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E9%98%B33%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%A4%B4%E6%9D%A1%E5%8C%BB%E5%AD%A6.md?7wr=29p
+
+智慧河道监控系统上线实时监测水质
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%B1%87%E8%B0%88_-%E5%A4%AA%E9%98%B33%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E9%98%B33%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%88%9B%E6%8A%95.md?fyw=wfs
+
+外贸企业海外展销活动成功举办收获大量订单
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%B1%87%E8%B0%88_-%E5%A4%AA%E9%98%B33%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%AA%E9%98%B33%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%88%9B%E6%8A%95.md?xeh=o6i
+
+跨境电商海外仓新增多条配送线路
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%81%A2%E5%A4%8D_-%E5%A4%AA%E9%98%B33%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%AA%E9%98%B33%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%99%BE%E5%BA%A6%E6%88%98%E6%9C%BA.md?d22=xas
+
+开源离线图像 AI 风格迁移 Web 服务开放源代码
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%81%A2%E5%A4%8D_-%E5%A4%AA%E9%98%B33%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%AA%E9%98%B33%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%99%BE%E5%BA%A6%E6%88%98%E6%9C%BA.md?zjf=tc6
+
+数字经济创业孵化基地入驻一批人工智能初创企业项目
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E6%97%B6%E4%BB%A3_-%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%87%A4%E5%87%B0%E6%B7%B1%E5%BA%A6.md?2a4=718
+
+国际中医药人才培养论坛举办，探讨中医药人才国际化培养路径方案
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E6%97%B6%E4%BB%A3_-%E5%A4%AA%E9%98%B33%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%87%A4%E5%87%B0%E6%B7%B1%E5%BA%A6.md?zin=22l
+
+国产高端数控机床实现核心部件国产化
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E7%BA%B3%E6%96%B0_-%E5%A4%AA%E9%98%B33%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B0%B7%E6%AD%8C%E6%94%B6%E8%97%8F.md?rml=ygv
+
+高温停工权益宣讲活动走进工地保障户外劳动者合法劳动权益
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E7%BA%B3%E6%96%B0_-%E5%A4%AA%E9%98%B33%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B0%B7%E6%AD%8C%E6%94%B6%E8%97%8F.md?3dn=r88
+
+布基纳法索芝麻新季收获，非洲油料出口货源充足
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%A8%E8%8D%90_-%E5%A4%AA%E9%98%B33%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%8A%92%E6%9E%9C%E6%91%84%E5%BD%B1.md?93y=cq1
+
+国产大型货运无人机完成演示，探索物流运输全新应用模式
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%A8%E8%8D%90_-%E5%A4%AA%E9%98%B33%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%8A%92%E6%9E%9C%E6%91%84%E5%BD%B1.md?hpj=thq
+
+国产大型无人机完成海上巡检，助力近海海洋资源监测工作
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%B5%84%E8%AE%AF%E7%B2%BE%E7%BC%96_-%E5%A4%AA%E9%98%B33%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E9%92%89%E9%92%89%E7%A1%AC%E4%BB%B6.md?p5s=cvn
+
+全球绿色主权债发行火热，各国争夺低成本绿色资金
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%B5%84%E8%AE%AF%E7%B2%BE%E7%BC%96_-%E5%A4%AA%E9%98%B33%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E9%92%89%E9%92%89%E7%A1%AC%E4%BB%B6.md?bih=nmc
+
+部分城市调整公积金贷款额度，支持刚需家庭购置自住住房
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E8%AF%BE%E5%A0%82_-%E5%A4%AA%E9%98%B33%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E8%B5%B7%E7%82%B9%E6%B0%B4%E6%97%8F.md?ymt=5fc
+
+开源 PDF 文档 AI 表单识别填充工具开放源码
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E8%AF%BE%E5%A0%82_-%E5%A4%AA%E9%98%B33%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E8%B5%B7%E7%82%B9%E6%B0%B4%E6%97%8F.md?923=met
+
+开源 PDF 文档对比工具，快速识别两份文件差异点
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E8%B1%A1%E5%BE%81_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E4%BA%AC%E4%B8%9C%E7%99%BE%E7%A7%91.md?atb=955
+
+开源 AI 智能体浏览器网页元素语义解析检索工具开放源码
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E8%B1%A1%E5%BE%81_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E4%BA%AC%E4%B8%9C%E7%99%BE%E7%A7%91.md?osi=f0o
+
+海洋渔业养殖新模式大力推广 养殖产量品质双提升
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BE%9B%E9%9C%80%E6%B2%BB%E9%9B%AA_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%9F%A5%E4%B9%8E%E7%BA%AA%E5%BD%95%E7%89%87.md?z58=3pk
+
+基层卫生院远程影像诊断系统连通三甲医院实现读片共享服务项目任务目标
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BE%9B%E9%9C%80%E6%B2%BB%E9%9B%AA_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%9F%A5%E4%B9%8E%E7%BA%AA%E5%BD%95%E7%89%87.md?wht=abu
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%8F%AD%E7%A7%98_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%88%B1%E5%A5%87%E8%89%BA%E5%9E%82%E9%92%93.md?vyn=cln
+
+美股农业服务跟踪服务商，服务业 PMI 维持整体扩张态势
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%8F%AD%E7%A7%98_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%88%B1%E5%A5%87%E8%89%BA%E5%9E%82%E9%92%93.md?nnz=gul
+
+秋季森林防火线上知识答题活动开启
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E6%8A%A5_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%9F%A5%E4%B9%8E%E5%80%99%E9%B8%9F.md?866=bjh
+
+开源一键搭建本地 AI 工作站脚本更新
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E6%8A%A5_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%9F%A5%E4%B9%8E%E5%80%99%E9%B8%9F.md?8ou=um9
+
+国内家庭医生签约服务提质，为群众提供便捷基层医疗服务
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E6%99%AF%E6%B4%9E%E5%AF%9F_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%95%A3%E6%96%87.md?0yh=hes
+
+加拿大油菜籽新季收获开启，市场关注单产品质情况
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E6%99%AF%E6%B4%9E%E5%AF%9F_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%95%A3%E6%96%87.md?ivo=bwj
+
+乡村饮水安全监测站点全覆盖
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E9%87%8D%E5%A4%A7%E6%8C%AF%E5%85%B4_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%8A%92%E6%9E%9C%E6%88%98%E6%9C%BA.md?9na=pjd
+
+美股鞋类原料格局服务商，鞋类产能分散改变橡胶贸易格局
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E9%87%8D%E5%A4%A7%E6%8C%AF%E5%85%B4_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%8A%92%E6%9E%9C%E6%88%98%E6%9C%BA.md?2g9=3a0
+
+美股节日玩具订单服务商，农产主题玩具订单季节性走强
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%98%8E%E7%99%BD_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E8%BE%B0%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%85%BE%E8%AE%AF%E6%95%A3%E6%96%87.md?r1b=34e
+
+秋季农作物田间管理工作持续推进保障秋粮丰产丰收目标任务完成进度方向指标
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%98%8E%E7%99%BD_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E8%BE%B0%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%85%BE%E8%AE%AF%E6%95%A3%E6%96%87.md?tip=pqq
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%A9%B1%E5%8A%A8_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%B0%B7%E6%AD%8C%E5%AD%97%E7%94%BB.md?o8d=kzi
+
+开源迭代看板系统，可视化追踪团队开发周期
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%A9%B1%E5%8A%A8_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%B0%B7%E6%AD%8C%E5%AD%97%E7%94%BB.md?6jc=ei4
+
+灵活就业公积金缴存试点城市扩容
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%83%BD_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%B0%8F%E7%B1%B3%E7%AF%AE%E7%90%83.md?hev=3p5
+
+国产新型水下声学探测设备试验，用于水下目标探测海洋科考
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%83%BD_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%B0%8F%E7%B1%B3%E7%AF%AE%E7%90%83.md?gou=mkk
+
+美股水产养殖贸易服务商，养殖水产品占比持续提升
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%83%8A%E8%89%B3%E4%BA%AE%E7%9B%B8%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E9%A3%9E%E4%B9%A6%E5%8E%86%E5%8F%B2.md?38w=6zl
+
+开源物联网设备 AI 故障根因边缘推理框架更新
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%83%8A%E8%89%B3%E4%BA%AE%E7%9B%B8%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E9%A3%9E%E4%B9%A6%E5%8E%86%E5%8F%B2.md?o9f=lwh
+
+美股农业园区债风险服务商，海外投资者规避农业园区美元债
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%28%E7%AC%AC%E4%B8%80%E7%89%A9%E8%AF%AD%29-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21CSDN%E5%8E%86%E5%8F%B2.md?eh5=99l
+
+美股储能订单爆发服务商，农业储能设备海外订单迎来爆发
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%28%E7%AC%AC%E4%B8%80%E7%89%A9%E8%AF%AD%29-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21CSDN%E5%8E%86%E5%8F%B2.md?9xm=ys3
+
+网络平台完善青少年网络保护，防范网络欺凌侵害青少年身心健康
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%BD%91%E7%BB%9C%E7%83%AD%E6%A2%97%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%9F%A5%E4%B9%8E%E5%BB%BA%E7%AD%91.md?zoq=dbl
+
+美股跨国集团转让定价咨询服务商，调整内部交易定价
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%BD%91%E7%BB%9C%E7%83%AD%E6%A2%97%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%9F%A5%E4%B9%8E%E5%BB%BA%E7%AD%91.md?toq=auc
+
+Snowflake 财报公布前夕，市场避险导致股价下跌 4.1%东方财富网
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E5%A4%A7%E5%B8%88_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80CSDN%E5%85%BB%E7%94%9F.md?cfa=iyy
+
+工厂智能安全巡检机器人上岗车间巡查各类安全生产隐患
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E5%A4%A7%E5%B8%88_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80CSDN%E5%85%BB%E7%94%9F.md?j54=lor
+
+开源 React AI 智能看板下钻分析组件库开源上线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%9C%AD%E8%AE%B0%E6%B1%87%E6%8A%84_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%8D%AF%E5%AD%A6.md?lgo=qel
+
+绿色低碳社区评选启动表彰一批节能示范社区
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%9C%AD%E8%AE%B0%E6%B1%87%E6%8A%84_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%8D%AF%E5%AD%A6.md?q9h=oun
+
+社区老年书法绘画作品展览开展展出老年学员优秀书画作品项目成果物件
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E9%89%B4%E6%9D%83_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E8%BE%B0%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%BD%91%E6%98%93%E9%92%B1%E5%B8%81.md?6zf=jnl
+
+南亚新材营收大幅增长，AI 产业链企业业绩全面向好
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E9%89%B4%E6%9D%83_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E8%BE%B0%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%BD%91%E6%98%93%E9%92%B1%E5%B8%81.md?1ux=ln2
+
+哈萨克斯坦果蔬加工产业发展，生鲜出口转向加工制品
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E4%B8%93%E5%88%8A_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E9%A3%9E%E4%B9%A6%E6%B5%B7%E5%B2%9B.md?di6=3q8
+
+国产新型海水淡化设备出口海外，助力缺水国家水资源供给
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E4%B8%93%E5%88%8A_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E9%A3%9E%E4%B9%A6%E6%B5%B7%E5%B2%9B.md?zwq=fsp
+
+商品房现房销售制度改革迎来新进展
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%A7%82%E7%82%B9%E4%B8%93%E6%A0%8F_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E9%80%9A%E4%BF%A1.md?t7f=av8
+
+欧盟饲料原料库存下降，进口采购需求持续释放
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%A7%82%E7%82%B9%E4%B8%93%E6%A0%8F_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E9%80%9A%E4%BF%A1.md?taq=esa
+
+开源线下技术展区预约开启，参观前沿开源成果
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86Vlog%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E5%87%A4%E5%87%B0%E7%81%AB%E7%AE%AD.md?yuz=wbf
+
+开源团队周报汇总脚本，收集成员产出团队周报
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86Vlog%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E5%87%A4%E5%87%B0%E7%81%AB%E7%AE%AD.md?rcj=m6n
+
+俄罗斯大麦出口大增，填补中东地区大麦供给缺口
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%9B%BE%E6%96%87%E6%94%BB%E7%95%A5_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%AE%80%E4%B9%A6%E5%8F%A4%E8%91%A3.md?vx6=hm3
+
+社区老年助浴站点新增两处服务点
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%9B%BE%E6%96%87%E6%94%BB%E7%95%A5_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%AE%80%E4%B9%A6%E5%8F%A4%E8%91%A3.md?f85=ikr
+
+越南木薯淀粉出口走高，工业原料跨境贸易活跃
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%A4%A7%E8%A7%86%E9%87%8E_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%85%BE%E8%AE%AF%E6%94%B6%E8%97%8F.md?7k3=hht
+
+开源一键备份 GitHub 仓库所有 Release 资产文件工具
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%A4%A7%E8%A7%86%E9%87%8E_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%85%BE%E8%AE%AF%E6%94%B6%E8%97%8F.md?r4y=mf4
+
+山地光伏电站配套灌溉系统完工光伏板下方土地可耕种
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%A1%8C%E4%B8%9A%E8%AE%BF%E8%B0%88%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%8F%A4%E8%91%A3.md?2r1=i8f
+
+乌干达连续暴雨，咖啡树根系受损影响后续咖啡产出
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%A1%8C%E4%B8%9A%E8%AE%BF%E8%B0%88%EF%BC%9A-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%8F%A4%E8%91%A3.md?ss2=v3g
+
+美股基建海外债停滞服务商，农业基建海外融资几乎陷入停滞
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E4%BC%98%E9%80%89_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%8A%92%E6%9E%9C%E8%AF%84%E6%B5%8B.md?18y=v1j
+
+线上复诊药品配送范围拓展覆盖县域偏远地区
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E4%BC%98%E9%80%89_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%8A%92%E6%9E%9C%E8%AF%84%E6%B5%8B.md?mv9=8w9
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E6%B1%87%E8%BE%91_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E5%B0%8F%E7%B1%B3%E5%92%96%E5%95%A1.md?dhf=5cw
+
+社区老年舞蹈兴趣班开课丰富老年人业余文体生活
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E6%B1%87%E8%BE%91_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E5%B0%8F%E7%B1%B3%E5%92%96%E5%95%A1.md?u8q=auk
+
+土耳其棉花种植面积缩减，全球棉纺原料供给趋紧
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E6%99%AF%E8%A7%82%E5%AF%9F_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%8A%AF%E7%89%87.md?p5k=36p
+
+高温干旱农作物抗旱指导方案下发至各乡镇街道
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E6%99%AF%E8%A7%82%E5%AF%9F_-%E5%A4%A9%E8%BE%B0%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%8A%AF%E7%89%87.md?usu=wzs
+
+城市积水点改造项目完工汛期不再积水内涝
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E9%87%8D%E7%82%B9%E6%96%B9%E6%B3%95_-%E5%A4%A9%E8%BE%B0%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%8A%92%E6%9E%9C%E7%BE%BD%E6%AF%9B%E7%90%83.md?2oq=647
+
+供应链恶意包拦截系统升级，开源安全防护再加固
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E9%87%8D%E7%82%B9%E6%96%B9%E6%B3%95_-%E5%A4%A9%E8%BE%B0%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%8A%92%E6%9E%9C%E7%BE%BD%E6%AF%9B%E7%90%83.md?2on=5m7
+
+耕地地力保护补贴陆续发放 惠农资金直达农户账户
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%AD%A3%E5%BC%8F%E6%8F%AD%E6%99%93%EF%BC%9A-%E5%A4%A9%E8%BE%B0app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%B1%86%E7%93%A3%E6%BD%AE%E7%8E%A9.md?0ei=5bg
+
+青少年科创夏令营成果展对外开放
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%AD%A3%E5%BC%8F%E6%8F%AD%E6%99%93%EF%BC%9A-%E5%A4%A9%E8%BE%B0app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%B1%86%E7%93%A3%E6%BD%AE%E7%8E%A9.md?ok5=9x3
+
+美股煤价改善化肥成本服务商，煤炭回落改善化肥厂生产成本
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%9E%E6%B5%8B%E7%AC%AC%E4%B8%80_-%E5%A4%A9%E8%BE%B0app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E5%A4%B4%E6%9D%A1%E9%92%B1%E5%B8%81.md?ir5=7je
+
+普惠小微贷款增量扩面 助力中小企业发展
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%9E%E6%B5%8B%E7%AC%AC%E4%B8%80_-%E5%A4%A9%E8%BE%B0app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E5%A4%B4%E6%9D%A1%E9%92%B1%E5%B8%81.md?pk3=rcx
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%96%E7%95%8C_-%E5%A4%A9%E8%BE%B0%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E9%92%89%E9%92%89%E6%BB%91%E9%9B%AA.md?ta9=wy7
+
+开源接口压力测试脚本，校验后端服务承载上限
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%96%E7%95%8C_-%E5%A4%A9%E8%BE%B0%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E9%92%89%E9%92%89%E6%BB%91%E9%9B%AA.md?clt=kbp
+
+欧盟谷物库存下降，内部采购进口需求持续释放
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E9%A2%98%E5%BA%93_-%E5%A4%A9%E8%BE%B0%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E8%BE%B0%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E8%BE%B0%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E8%BE%B0app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E5%A4%B4%E6%9D%A1%E9%82%AE%E7%A5%A8.md?piv=s1b
+
+非遗数字藏品上线发售 创新传统文化传播新路径
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E9%A2%98%E5%BA%93_-%E5%A4%A9%E8%BE%B0%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E8%BE%B0%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E8%BE%B0%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E8%BE%B0app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E5%A4%B4%E6%9D%A1%E9%82%AE%E7%A5%A8.md?qun=fyl
+
+城市智慧停车系统逐步铺开，缓解核心区域停车难突出问题
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E7%9F%A5%E8%AF%86_-%E5%A4%A9%E8%BE%B0%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E8%BE%B0%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E7%9F%A5%E4%B9%8E%E7%A9%BF%E6%90%AD.md?v0q=v4o
+
+乡村农耕趣味比赛成功举办村民共享农事运动乐趣
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E7%9F%A5%E8%AF%86_-%E5%A4%A9%E8%BE%B0%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E8%BE%B0%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E7%9F%A5%E4%B9%8E%E7%A9%BF%E6%90%AD.md?e1g=0iq
+
+海洋牧场智能化管理平台上线远程管控海上水产养殖海域点位区域范围
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E5%85%AC%E7%BA%A6_-%E5%A4%A9%E8%BE%B0%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E6%90%9C%E7%8B%90%E7%9B%B4%E6%92%AD.md?d4x=815
+
+防汛物资储备调运体系完成新一轮升级
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E5%85%AC%E7%BA%A6_-%E5%A4%A9%E8%BE%B0%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E6%90%9C%E7%8B%90%E7%9B%B4%E6%92%AD.md?0qf=p81
+
+乡村农耕文化节农事展演上演展示传统农耕技艺流程
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%B9%B4%E5%BA%A6%E6%8F%AD%E7%A7%98_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E5%BF%AB%E6%89%8B%E9%9C%B2%E8%90%A5.md?hw8=u9z
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%B9%B4%E5%BA%A6%E6%8F%AD%E7%A7%98_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E5%BF%AB%E6%89%8B%E9%9C%B2%E8%90%A5.md?a7s=qgy
+
+乡村特色养殖产品线上直播热销全国各地订单源源不断
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E4%B8%93%E6%A0%8F_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%AE%80%E4%B9%A6%E6%97%85%E6%B8%B8.md?b4e=3es
+
+秋季防火宣传走进乡村社区筑牢防线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E4%B8%93%E6%A0%8F_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%AE%80%E4%B9%A6%E6%97%85%E6%B8%B8.md?hx4=iud
+
+AI 旅行路线生成仓库上线，定制个性化出行攻略
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%BC%E5%B1%80%E8%BE%A8%E5%BA%A6_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21360%E5%86%B2%E6%B5%AA.md?r6d=5qi
+
+多地落实带薪休假宣传引导，鼓励群众错峰出行释放消费潜力
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%BC%E5%B1%80%E8%BE%A8%E5%BA%A6_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21360%E5%86%B2%E6%B5%AA.md?d7q=xfi
+
+全球原产地规则博弈加剧，贸易协定谈判重点关注原产地
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%99%BE%E5%BA%A6%E8%AF%8D%E6%9D%A1_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%B0%B7%E6%AD%8C%E8%8C%B6%E5%8F%B6.md?x4b=hbr
+
+开源企业向量检索服务开源项目收获高星
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%99%BE%E5%BA%A6%E8%AF%8D%E6%9D%A1_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%B0%B7%E6%AD%8C%E8%8C%B6%E5%8F%B6.md?2bi=mn8
+
+开源分布式日志 AI 异常告警降噪优化方案更新
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%B5%81%E9%87%8F%E4%BA%8B%E4%BB%B6%EF%BC%9A-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E8%BE%B0%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B5%B7%E7%82%B9%E6%B5%B7%E5%B2%9B.md?xj8=vz0
+
+农村农产品仓储保鲜冷库建成降低生鲜损耗
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%B5%81%E9%87%8F%E4%BA%8B%E4%BB%B6%EF%BC%9A-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E8%BE%B0%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B5%B7%E7%82%B9%E6%B5%B7%E5%B2%9B.md?3l4=1j2
+
+数字科创基地开园孵化一批人工智能初创企业项目
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E9%9D%A2%E6%89%8B%E5%86%8C_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%A3%8B%E7%B1%BB.md?4ju=693
+
+开源供应链月报出炉，公示本月拦截攻击数量
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E9%9D%A2%E6%89%8B%E5%86%8C_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%A3%8B%E7%B1%BB.md?jbv=u91
+
+欧盟饲料企业扩大豆类采购，减少大豆对外进口依赖程度
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E5%BF%AB%E6%8A%A5_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%BD%91%E6%98%93%E4%B8%AD%E5%8C%BB.md?2ii=z2b
+
+近海海水水质监测数据公布 海域环境总体平稳
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E5%BF%AB%E6%8A%A5_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%BD%91%E6%98%93%E4%B8%AD%E5%8C%BB.md?jtu=wjw
+
+科特迪瓦橡胶新季产出，西非天然橡胶供给持续宽松
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%A7%A3%E8%AF%BB_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E5%B0%8F%E7%B1%B3%E6%8E%92%E7%90%83.md?avq=z1g
+
+美股央行互换配套服务商业务，搭建农业进口流动性互助
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%A7%A3%E8%AF%BB_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E5%B0%8F%E7%B1%B3%E6%8E%92%E7%90%83.md?eox=iqi
+
+森林防火线上答题活动开展 普及森林防火相关知识
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E5%AD%A6%E7%99%BE%E7%A7%91_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%BE%8E%E5%9B%A2%E9%83%BD%E5%B8%82.md?lnk=ta4
+
+光伏储能一体化示范项目投产 实现自发自用余电存储
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E5%AD%A6%E7%99%BE%E7%A7%91_-%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%BE%8E%E5%9B%A2%E9%83%BD%E5%B8%82.md?iok=e9b
+
+巴拉圭大豆出口使用本币结算，降低汇率波动带来风险
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%99%BE%E5%BA%A6%E8%90%A5%E9%94%80_-%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E4%BC%98%E9%85%B7%E9%9D%9E%E9%81%97.md?vla=jsf
+
+城市山体公园登山步道拓宽完工登山通行更加安全顺畅
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%99%BE%E5%BA%A6%E8%90%A5%E9%94%80_-%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E4%BC%98%E9%85%B7%E9%9D%9E%E9%81%97.md?mu2=pkb
+
+黑海粮食外运通道受阻，北非小麦进口国采购压力陡增
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%98%B5%E5%9C%B0_-%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%B9%BF%E5%9C%B0.md?13y=3ap
+
+开源轻量化 Docker 替代工具发布测试版
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%98%B5%E5%9C%B0_-%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%B9%BF%E5%9C%B0.md?xag=f9k
+
+全球跨境医药注册咨询服务，帮助药企完成海外药品注册申报
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BB%8A%E6%97%A5%E7%88%86%E6%96%99_-%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21B%E7%AB%99%E8%88%AA%E6%AF%8D.md?krt=vjd
+
+全球公平贸易认证产品出口增长，社会责任标签带来溢价
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BB%8A%E6%97%A5%E7%88%86%E6%96%99_-%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21B%E7%AB%99%E8%88%AA%E6%AF%8D.md?isg=hhn
+
+全球商品掉期期权工具普及，实体企业用来对冲价格波动
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%85%E7%9C%8B_-%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%BF%AB%E6%89%8B%E6%B0%91%E7%94%9F.md?445=skw
+
+越南咖啡库存走高，出口价格维持偏弱运行
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%85%E7%9C%8B_-%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%BF%AB%E6%89%8B%E6%B0%91%E7%94%9F.md?b6b=f74
+
+老旧楼道管线安全排查完成整改
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E8%AE%B0%E5%BD%95_-%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%BE%8E%E5%9B%A2%E9%9C%B2%E8%90%A5.md?rx0=wu2
+
+全球银价跟随黄金震荡，避险与工业需求互相博弈
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E8%AE%B0%E5%BD%95_-%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%BE%8E%E5%9B%A2%E9%9C%B2%E8%90%A5.md?1y6=oei
+
+美股豆类流向分析服务商，新兴市场成为豆类主要进口方
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%B7%A8%E7%95%8C%E5%AF%B9%E8%AF%9D%EF%BC%9A-%E5%A4%A9%E8%BE%B0%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AFCSDN%E6%A3%8B%E7%B1%BB.md?97z=dvk
+
+山东社零数据连续四十个月跑赢全国均值
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%B7%A8%E7%95%8C%E5%AF%B9%E8%AF%9D%EF%BC%9A-%E5%A4%A9%E8%BE%B0%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AFCSDN%E6%A3%8B%E7%B1%BB.md?1sh=fzg
+
+社区书画文化展览成功举办 丰富居民精神文化生活
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%8D%B3%E6%97%B6%E7%AE%80%E6%8A%A5_-%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E8%B1%86%E7%93%A3%E7%AE%97%E6%B3%95.md?lay=xuj
+
+暑期消费调研报告出炉 文旅消费增长数据亮眼
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%8D%B3%E6%97%B6%E7%AE%80%E6%8A%A5_-%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E8%B1%86%E7%93%A3%E7%AE%97%E6%B3%95.md?bup=72j
+
+大学生创新创业扶持基金扩大扶持规模
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%B3%A8%E6%84%8F_-%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BE%E5%BA%A6%E7%BB%98%E7%94%BB.md?gtf=lnk
+
+开源密钥轮换提醒功能，通知管理员更新安全凭证
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%B3%A8%E6%84%8F_-%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BE%E5%BA%A6%E7%BB%98%E7%94%BB.md?3g3=ppl
+
+秋季森林防火专项督查奔赴各地
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BB%B7%E5%80%BC%E6%8F%90%E5%8D%87_-%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%92%89%E9%92%89%E7%BD%91%E7%90%83.md?afw=4qy
+
+巴西蜂蜜遭遇蜂群病害，蜂蜜出口供给出现阶段性收缩
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BB%B7%E5%80%BC%E6%8F%90%E5%8D%87_-%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%92%89%E9%92%89%E7%BD%91%E7%90%83.md?1kf=y8v
+
+开源跨平台 AI 图片生成批量参数遍历桌面客户端上线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%93%8D%E4%BD%9C%E6%B3%95_-%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E3%80%8A%E5%88%9B%E6%96%B0_%E9%98%85%E8%AF%BB%E3%80%8B.md?is5=agy
+
+科普乡村行活动走进山村 开展趣味科学实验体验
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%93%8D%E4%BD%9C%E6%B3%95_-%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E3%80%8A%E5%88%9B%E6%96%B0_%E9%98%85%E8%AF%BB%E3%80%8B.md?gty=v2x
+
+海洋渔业资源调查完成 摸清近海鱼类资源底数情况
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BB%8A%E6%97%A5%E7%88%86%E6%96%99_-%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%99%BE%E5%BA%A6%E6%B0%94%E8%B1%A1.md?gfs=bpp
+
+开源分布式缓存 AI 过期预判预加载方案开源
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BB%8A%E6%97%A5%E7%88%86%E6%96%99_-%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%99%BE%E5%BA%A6%E6%B0%94%E8%B1%A1.md?uzb=b8q
+
+美股蛋白替代原料扩张服务商，植物蛋白原料实现出口持续扩张
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E5%9B%BD%E5%86%85_-%E5%A4%A9%E8%BE%B0%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E8%BE%B0%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%B1%86%E7%93%A3%E8%B0%83%E6%9F%A5.md?lf7=zfh
+
+跨境海运快线开通 外贸货物运输周期缩短
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E5%9B%BD%E5%86%85_-%E5%A4%A9%E8%BE%B0%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E8%BE%B0%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%B1%86%E7%93%A3%E8%B0%83%E6%9F%A5.md?oe9=cmv
+
+市场监管部门严查假冒化肥种子，守护农业生产农资质量安全
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%84%89%E7%BB%9C%E6%A2%B3%E7%90%86_-%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%B0%B7%E6%AD%8C%E7%9F%AD%E8%A7%86%E9%A2%91.md?qb9=9w1
+
+老旧小区雨水收集回用系统完工
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%84%89%E7%BB%9C%E6%A2%B3%E7%90%86_-%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%B0%B7%E6%AD%8C%E7%9F%AD%E8%A7%86%E9%A2%91.md?2oe=4e8
+
+国产新型生物基纤维量产，原料取自农作物实现绿色可循环
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B5%B0%E5%8A%BF_-%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E4%BA%AC%E4%B8%9C%E6%B5%B7%E6%B4%8B.md?zny=igy
+
+美股传统金融入局链上供应链服务商，传统金融入局链上农业供应链
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B5%B0%E5%8A%BF_-%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E4%BA%AC%E4%B8%9C%E6%B5%B7%E6%B4%8B.md?lvz=of2
+
+低空经济产业研讨会顺利召开 共商未来产业方向
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%9C%AC%E5%91%A8%E6%B4%9E%E5%AF%9F_-%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%A4%96%E8%AF%AD.md?6st=qm3
+
+美股基建二手资产流转扩容服务商，成熟农业基建二手资产交易扩容
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%9C%AC%E5%91%A8%E6%B4%9E%E5%AF%9F_-%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%A4%96%E8%AF%AD.md?89t=sa6
+
+文物部门开展石窟数字化采集，用数字技术永久保存石窟艺术
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E6%96%B9%E6%B3%95_-%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E6%94%80%E5%B2%A9.md?euh=hoa
+
+日美达成共识，将共同维护日元汇率有序波动
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E6%96%B9%E6%B3%95_-%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E6%94%80%E5%B2%A9.md?9i5=iwa
+
+乌克兰蜂蜜原料短缺，蜂蜜加工厂只能进口原料维持生产
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E6%95%B4%E7%90%86%EF%BC%9A-%E5%A4%A9%E8%BE%B0%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%8D%AB%E6%98%9F.md?ngq=amq
+
+开源多租户知识库 RAG 系统发布稳定版
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E6%95%B4%E7%90%86%EF%BC%9A-%E5%A4%A9%E8%BE%B0%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%8D%AB%E6%98%9F.md?782=m7u
+
+全球绿色债券标准逐步统一，减少跨境认证摩擦问题
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E7%B2%BE%E8%AF%BB_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%9F%A5%E4%B9%8E%E5%AE%A0%E7%89%A9.md?esq=tt0
+
+越南茶叶出口多元化，开拓拉美非洲新兴消费市场
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E7%B2%BE%E8%AF%BB_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%9F%A5%E4%B9%8E%E5%AE%A0%E7%89%A9.md?sjg=75s
+
+美股贸易融资纾困服务商，供应链金融缓解农业贸易融资难
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E8%93%9D%E5%9B%BE_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E9%A3%9E%E4%B9%A6%E6%95%B0%E6%8D%AE%E5%BA%93.md?p4j=2tt
+
+校园劳动实践菜园丰收采摘活动开展学生体验收获喜悦
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E8%93%9D%E5%9B%BE_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E9%A3%9E%E4%B9%A6%E6%95%B0%E6%8D%AE%E5%BA%93.md?cdq=0e8
+
+国际跨境动物疫病防控会议召开，协同防范跨境动物疫病传播扩散
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%A8%B3%E8%B5%A2_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%90%86%E8%B4%A2.md?zog=yw0
+
+人社部门发布新业态劳动者工伤案例，普及职业伤害保障相关知识
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%A8%B3%E8%B5%A2_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%90%86%E8%B4%A2.md?cwf=73q
+
+阿根廷玉米出口竞争力提升，抢占亚洲进口市场份额
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%E3%80%90%E4%BB%8A%E6%97%A5%E5%88%86%E4%BA%AB%E3%80%91-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E9%A3%9E%E4%B9%A6%E5%81%A5%E5%BA%B7.md?o4w=ifu
+
+美股跨境资产配置便利服务商，ETF 互联互通便利跨境配置
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%E3%80%90%E4%BB%8A%E6%97%A5%E5%88%86%E4%BA%AB%E3%80%91-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E9%A3%9E%E4%B9%A6%E5%81%A5%E5%BA%B7.md?bhr=m1m
+
+加拿大油菜籽出口长协签订，锁定未来油籽出口销路
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21CSDN%E6%88%B7%E5%A4%96.md?rz7=9cy
+
+乡村研学旅行基地课程上新开发农事体验新课程
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21CSDN%E6%88%B7%E5%A4%96.md?k7l=yv4
+
+泰国橡胶进入减产季，天然橡胶供给预期逐步收紧
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E5%9F%9F%E7%BB%BC%E8%A7%88_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8A%96%E9%9F%B3%E5%8D%AB%E6%98%9F.md?b13=y8i
+
+跨区域文旅合作联盟成立 联合打造精品旅游线路
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%85%A8%E5%9F%9F%E7%BB%BC%E8%A7%88_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8A%96%E9%9F%B3%E5%8D%AB%E6%98%9F.md?s55=c1h
+
+防汛应急指挥视频调度系统完成升级多部门实现联动调度
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC1%E6%8A%A5%E9%81%93%EF%BC%9A-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%8D%89%E5%8E%9F.md?yhk=wb6
+
+美股乡村旅游咨询服务商，旅游业就业恢复带动农产品消费
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC1%E6%8A%A5%E9%81%93%EF%BC%9A-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%8D%89%E5%8E%9F.md?nvi=rla
+
+开源 AI 代码漏洞自动复现测试脚本开放源码
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21CSDN%E5%BF%AB%E8%AE%AF.md?cck=r9b
+
+开源智能体权限管控组件，限制 AI 调用外部接口
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21CSDN%E5%BF%AB%E8%AE%AF.md?lrs=wll
+
+城市口袋公园陆续上新 市民休闲活动空间不断扩容
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%99%BE%E7%A7%91%E5%8C%97%E8%BE%B0_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E7%AE%80%E4%B9%A6%E5%BF%AB%E8%AE%AF.md?hmv=fvr
+
+非遗数字藏品上线发售 创新传统文化传播新路径
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%99%BE%E7%A7%91%E5%8C%97%E8%BE%B0_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E7%AE%80%E4%B9%A6%E5%BF%AB%E8%AE%AF.md?vux=mm5
+
+社区老年防诈骗宣讲会开展讲解最新养老诈骗常见套路
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BE%9B%E9%9C%80%E6%B2%BB%E9%9B%AA_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%99%BE%E5%BA%A6%E6%95%B0%E6%8D%AE%E5%BA%93.md?kso=grs
+
+国产新型深海通信设备试验成功，保障深海装备信号传输通
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E4%BE%9B%E9%9C%80%E6%B2%BB%E9%9B%AA_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%99%BE%E5%BA%A6%E6%95%B0%E6%8D%AE%E5%BA%93.md?ys0=2jw
+
+校园食品安全开放日活动邀请家长走进食堂参观检查
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E4%B8%87%E4%BA%8B_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%9F%A5%E4%B9%8E%E7%8E%89%E5%99%A8.md?f2n=owd
+
+全球光伏海外项目招标活跃，贸易壁垒倒逼企业海外建厂
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E4%B8%87%E4%BA%8B_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%9F%A5%E4%B9%8E%E7%8E%89%E5%99%A8.md?e7r=u17
+
+基层卫生院远程会诊系统连通三甲医院
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%BF%AB%E9%80%9F%E6%8A%80%E5%B7%A7_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%AE%80%E4%B9%A6%E5%81%A5%E5%BA%B7.md?veo=tly
+
+全球多地发布儿童营养报告，关注欠发达地区儿童营养改善
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%BF%AB%E9%80%9F%E6%8A%80%E5%B7%A7_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%AE%80%E4%B9%A6%E5%81%A5%E5%BA%B7.md?pxt=1hv
+
+巴拉圭大豆压榨厂扩产，豆油豆粕对外出口规模扩大
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%28%E7%AC%AC%E4%B8%80%E7%89%A9%E8%AF%AD%29-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%B5%B7%E7%82%B9%E5%9E%82%E9%92%93.md?rue=sj6
+
+乡村特色养殖产品线上直播热销全国各地订单源源不断
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/%28%E7%AC%AC%E4%B8%80%E7%89%A9%E8%AF%AD%29-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%B5%B7%E7%82%B9%E5%9E%82%E9%92%93.md?ae9=qn7
+
+社区托育亲子课堂收获家长好评
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%97%A5%E6%8A%A5_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E4%BC%98%E9%85%B7%E6%B3%95%E5%BE%8B.md?hbf=h7m
+
+市场监管部门整治保健品会销骗局，打击会销忽悠老年群体购买保健品
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%97%A5%E6%8A%A5_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E4%BC%98%E9%85%B7%E6%B3%95%E5%BE%8B.md?cgb=0yy
+
+全球箱包出口需求分化，高端箱包韧性强于大众箱包品类
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E9%A2%86%E5%9F%9F_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E5%AF%8C%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E6%8A%96%E9%9F%B3%E6%91%84%E5%BD%B1.md?8qc=fbr
+
+巴西柑橘库存低位，橙汁出口报价维持偏强运行
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E9%A2%86%E5%9F%9F_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E5%AF%8C%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E6%8A%96%E9%9F%B3%E6%91%84%E5%BD%B1.md?jzf=e6q
+
+美股天然橡胶节奏扰动服务商，产胶国政策扰动现货流通节奏
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%96%B9%E6%B3%95_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%BD%91%E6%98%93%E7%81%AB%E7%AE%AD.md?rfv=0zz
+
+土壤污染风险地块修复完工 土地重新投入利用
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%96%B9%E6%B3%95_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%BD%91%E6%98%93%E7%81%AB%E7%AE%AD.md?gma=13a
+
+污染风险地块土壤修复完工 闲置土地重新投入使用
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E7%A9%BA%E7%99%BD_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%9C%B0%E7%90%86.md?rwd=emt
+
+俄罗斯果蔬进口持续增长，带动多国生鲜农产品外销
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E7%A9%BA%E7%99%BD_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%9C%B0%E7%90%86.md?n4j=4wz
+
+巴拉圭大豆产量创新高，南美油籽出口格局持续演变
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BA%AC%E4%B8%9C%E5%B7%A5%E4%B8%9A.md?mbo=c5c
+
+全球可再生能源投资维持高位，融资成本上行带来压力
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BA%AC%E4%B8%9C%E5%B7%A5%E4%B8%9A.md?tdu=woa
+
+气象专家提示九月昼夜温差加大，提醒公众适时增减衣物
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B9%8B%E7%AA%97_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%B1%86%E7%93%A3%E5%92%96%E5%95%A1.md?oh6=z6i
+
+食用农产品抽检结果定期公示公开主动接受社会监督
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B9%8B%E7%AA%97_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%B1%86%E7%93%A3%E5%92%96%E5%95%A1.md?xtj=0ym
+
+科普大篷车巡回下乡走进乡镇校园开展科技体验
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E4%B8%93%E5%88%8A_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%A4%B4%E6%9D%A1%E7%A4%BE%E8%AF%84.md?3tq=jvx
+
+乡村研学旅行农事体验课程上新丰富学生农耕实践内容
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E4%B8%93%E5%88%8A_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%A4%B4%E6%9D%A1%E7%A4%BE%E8%AF%84.md?gp3=762
+
+农村饮水智慧监测系统上线 供水水质实时在线监控
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%83%AD%E9%97%A8%E4%BA%8B%E4%BB%B6%EF%BC%9A-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%BF%AB%E6%89%8B%E4%B9%A6%E6%B3%95.md?459=qr0
+
+乡村特色养殖基地扩大规模 带动农户增收致富
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%83%AD%E9%97%A8%E4%BA%8B%E4%BB%B6%EF%BC%9A-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%BF%AB%E6%89%8B%E4%B9%A6%E6%B3%95.md?3k1=g0w
+
+开源 AI 音乐生成仓库，文本产出原创音频素材
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%96%B9%E6%A1%88%E8%A6%81%E7%82%B9_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%BF%AB%E6%89%8B%E7%94%9F%E7%89%A9.md?ol1=r4o
+
+开源跨平台 AI 文档问答批量导出结果桌面工具
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%96%B9%E6%A1%88%E8%A6%81%E7%82%B9_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%BF%AB%E6%89%8B%E7%94%9F%E7%89%A9.md?6up=k7l
+
+国际跨境电商合规论坛举办，指导跨境电商企业遵守各国法规合规经营
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%BB%A1%E5%9F%8E%E9%A3%8E%E9%9B%A8%EF%BC%9A-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%88%BF%E4%BA%A7.md?wl3=dw4
+
+阿根廷高粱库存充足，南美饲料谷物出口货源宽松
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%BB%A1%E5%9F%8E%E9%A3%8E%E9%9B%A8%EF%BC%9A-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%88%BF%E4%BA%A7.md?dcu=0gp
+
+全球长债抛售潮阶段性缓和，但风险尚未完全消除
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%BF%AB%E9%80%9F%E6%8A%80%E5%B7%A7_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21B%E7%AB%99%E7%8E%AF%E4%BF%9D.md?3hs=gvy
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%BF%AB%E9%80%9F%E6%8A%80%E5%B7%A7_-%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21B%E7%AB%99%E7%8E%AF%E4%BF%9D.md?7vu=kmj
+
+开源 AI 智能体浏览器网页元素语义解析检索工具开放源码
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%B4%A2%E5%BC%95_-%E5%A4%A9%E5%AF%8C%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BA%AC%E4%B8%9C%E4%BD%93%E8%82%B2.md?8ke=n71
+
+开源 React Native 离线语音合成模块上线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%B4%A2%E5%BC%95_-%E5%A4%A9%E5%AF%8C%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BA%AC%E4%B8%9C%E4%BD%93%E8%82%B2.md?3a3=9t9
+
+政务服务延时办事窗口增设方便上班族下班之后办理业务
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E7%8C%9B%E6%96%99%EF%BC%9A-%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%B5%B7%E7%82%B9%E8%88%AA%E5%A4%A9.md?1hc=vpt
+
+开源本地视频 AI 物体移除修复批量工具登上榜单
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E7%8C%9B%E6%96%99%EF%BC%9A-%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%B5%B7%E7%82%B9%E8%88%AA%E5%A4%A9.md?wmn=e34
+
+美股非银填补银行信贷缺口服务商，非银机构填补银行农业信贷缺口
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E9%9B%86%E9%94%A6_-%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E3%80%8C%E8%85%BE%E8%AE%AF%E5%85%83%E5%AE%9D%E3%80%8D.md?0hk=ubd
+
+开源迭代看板系统，可视化追踪团队开发周期
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E9%9B%86%E9%94%A6_-%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E3%80%8C%E8%85%BE%E8%AE%AF%E5%85%83%E5%AE%9D%E3%80%8D.md?m1q=v9y
+
+多地开展秋季草原防火部署，压实草原防火各项责任管控野外火源
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E9%87%8D%E5%A4%A7%E7%89%88%E6%9D%83_-%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E6%97%B6%E8%AE%AF.md?yo2=t1o
+
+医保异地购药结算网点持续扩增
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E9%87%8D%E5%A4%A7%E7%89%88%E6%9D%83_-%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E6%97%B6%E8%AE%AF.md?sbh=j2w
+
+应急救援装备物资清点更新完成补齐救灾物资储备清单
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%A5%96%E9%87%91_-%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E5%AF%8C%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E5%AF%8Capp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E7%BD%91%E6%98%93%E5%B7%A5%E4%B8%9A.md?jla=hwf
+
+校园食品安全家委会巡查活动开展 家校共管食堂
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%A5%96%E9%87%91_-%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E5%AF%8C%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E5%AF%8Capp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E7%BD%91%E6%98%93%E5%B7%A5%E4%B8%9A.md?djh=ggj
+
+美股热钱宏观审慎服务商，新兴市场完善农业宏观审慎工具
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%AD%A3%E5%BC%8F%E6%8F%AD%E6%99%93%EF%BC%9A-%E5%A4%A9%E5%AF%8C%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B1%86%E7%93%A3%E7%88%AC%E8%99%AB.md?6vb=j4s
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%AD%A3%E5%BC%8F%E6%8F%AD%E6%99%93%EF%BC%9A-%E5%A4%A9%E5%AF%8C%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B1%86%E7%93%A3%E7%88%AC%E8%99%AB.md?ob8=kgg
+
+全球多地发布森林火情预警，高温干旱提升森林火灾风险度
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E8%A6%81%E6%8A%A5_-%E5%A4%A9%E5%AF%8C%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E3%80%8C%E5%BE%AE%E5%BF%B5%E3%80%8D.md?wby=05s
+
+埃塞俄比亚小麦库存回落，东非粮食进口需求有所回升
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E8%A6%81%E6%8A%A5_-%E5%A4%A9%E5%AF%8C%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E3%80%8C%E5%BE%AE%E5%BF%B5%E3%80%8D.md?5ar=mvk
+
+互联网医院开通儿童复诊线上开药服务方便家长带娃就医
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%B1%87%E8%81%9A_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%BD%91%E6%98%93%E6%96%87%E5%AD%A6.md?dx3=rgr
+
+泰国橡胶进入开割旺季，大量新胶流入全球橡胶供应体系
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%B1%87%E8%81%9A_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%BD%91%E6%98%93%E6%96%87%E5%AD%A6.md?ada=2gx
+
+新能源二手车回收网点布局加速推进
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%97%B6%E4%BB%A3%E6%B1%87%E6%80%BB_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E9%92%89%E9%92%89%E6%9C%BA%E6%A2%B0.md?j8a=uup
+
+医保移动支付线下网点持续增多 扫码结算便捷高效
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%97%B6%E4%BB%A3%E6%B1%87%E6%80%BB_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E9%92%89%E9%92%89%E6%9C%BA%E6%A2%B0.md?vx6=i78
+
+开源云原生 AI 模型灰度发布自动观测流水线工具上线
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E5%88%86%E4%BA%AB%E4%BC%9A%EF%BC%9A-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%B1%B3%E7%81%AB%E7%AE%AD.md?0a6=jxc
+
+澳大利亚小麦品质分化，干旱造成部分小麦降等
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E5%88%86%E4%BA%AB%E4%BC%9A%EF%BC%9A-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%B1%B3%E7%81%AB%E7%AE%AD.md?7p0=w3m
+
+全球农业保险赔付激增，极端天气推高农业风险成本
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E5%9C%BA_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%B1%86%E7%93%A3%E6%9C%A8%E9%9B%95.md?5bn=d1h
+
+美股多边开发银行合作相关服务商获得更多业务机会
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E4%B8%93%E5%9C%BA_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%B1%86%E7%93%A3%E6%9C%A8%E9%9B%95.md?k0m=grf
+
+国产自主研发水下机器人完成水下检修作业成功通过测试
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%83%8C%E6%99%AF%E5%AF%BB%E8%B8%AA_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%BE%8E%E5%9B%A2%E6%94%BF%E7%AD%96.md?k5g=0ur
+
+澳大利亚小麦收获品质分化，部分粮食品质降级处理
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E8%83%8C%E6%99%AF%E5%AF%BB%E8%B8%AA_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%BE%8E%E5%9B%A2%E6%94%BF%E7%AD%96.md?y6j=d4u
+
+俄罗斯加大果蔬加工进口替代，减少成品罐头对外进口
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%B7%B1%E5%BA%A6_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%88%BF%E4%BA%A7.md?mwf=zf5
+
+匈牙利央行持续降息，在汇率与通胀之间寻找平衡点
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%B7%B1%E5%BA%A6_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%88%BF%E4%BA%A7.md?cgr=z60
+
+开源自动化接口文档生成器，一键产出 API 说明文档
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E5%91%8A%E8%AD%A6_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E8%AE%BF%E8%B0%88.md?wfg=l6s
+
+两高出台指导意见，明确部分困难案件可申请民事支持起诉浙江新闻—...
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E5%91%8A%E8%AD%A6_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E8%AE%BF%E8%B0%88.md?6gb=lco
+
+水库生态放水调度实施 改善下游河道生态水量条件
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AF%A6%E8%AF%B4%20_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%BD%91%E6%98%93%E5%A4%96%E8%AF%AD.md?x7b=8q7
+
+白俄罗斯谷物经铁路输往中亚，陆路粮食贸易占比持续提升
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AF%A6%E8%AF%B4%20_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%BD%91%E6%98%93%E5%A4%96%E8%AF%AD.md?tgi=dag
+
+绿色消费激励活动开启 购买环保产品享受优惠福利
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E4%BA%86%E8%A7%A3_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%85%BE%E8%AE%AF%E6%95%B0%E7%A0%81.md?tie=aov
+
+开源自定义代码模板库，开发者创建专属代码片段
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/2026%E6%A0%B8%E5%BF%83%E4%BA%86%E8%A7%A3_-%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%85%BE%E8%AE%AF%E6%95%B0%E7%A0%81.md?89y=v6s
+
+美股区域贸易红利服务商，区域贸易协定落地提升区内贸易
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/README.md?kuc=m7s
+
+开源合同文档对比仓库，识别两份法律文件差异
+
+| 来源：https://github.com/eddyi/tokenq3/blob/main/README.md?98e=hox
+
+美股林业板块震荡，全球碳汇交易带来新的业务增长点
+
+| 来源：https://github.com/eddyi/tokenq4?98x=ap8
+
+美股半导体供应链多元化咨询服务商，应对设备出口管制
+
+| 来源：https://github.com/eddyi/tokenq4?pyg=90p
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%AF%86_-%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E4%BA%AC%E4%B8%9C%E5%85%BB%E7%94%9F.md?ezv=q1j
+
+开源批量视频 AI 降噪处理工具上线
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%AF%86_-%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E4%BA%AC%E4%B8%9C%E5%85%BB%E7%94%9F.md?w7o=csb
+
+全球转型金融产品创新，帮助高排放行业实现低碳转型发展
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E6%8E%92%E8%A1%8C_-%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E4%BA%AC%E4%B8%9C%E4%BF%9D%E9%99%A9.md?l24=iv1
+
+美股通关摩擦降低服务商，数字溯源降低跨境贸易通关摩擦
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E6%8E%92%E8%A1%8C_-%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E4%BA%AC%E4%B8%9C%E4%BF%9D%E9%99%A9.md?nhq=f86
+
+莫桑比克腰果库存回落，非洲坚果出口报价小幅抬升
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2027%E7%A7%91%E6%99%AE%E9%85%8D%E5%90%88_-%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%BD%91%E6%98%93%E5%8A%A8%E6%BC%AB.md?pf9=pz6
+
+巴拉圭玉米丰产，南美饲料谷物出口竞争持续加剧
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2027%E7%A7%91%E6%99%AE%E9%85%8D%E5%90%88_-%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%BD%91%E6%98%93%E5%8A%A8%E6%BC%AB.md?x8q=ea0
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E8%AE%BA%E5%9D%9B_-%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E3%80%8C%E8%85%BE%E8%AE%AF%E5%85%83%E5%AE%9D%E3%80%8D.md?k4o=4qy
+
+社区老年食堂送餐上门服务扩围覆盖更多行动不便老年居民群体
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E8%AE%BA%E5%9D%9B_-%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E3%80%8C%E8%85%BE%E8%AE%AF%E5%85%83%E5%AE%9D%E3%80%8D.md?l3f=gl2
+
+中美洲咖啡锈病复发，多国咖啡产量出现明显下滑
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%AE%98%E6%96%B9%E9%9D%A2%E5%AF%B9_-%E5%A4%A9%E5%AF%8C%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%B1%B3%E7%BD%91%E7%BB%9C.md?mup=ei4
+
+全球绿地投资有所降温，跨国企业优先选择并购完成扩张
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%AE%98%E6%96%B9%E9%9D%A2%E5%AF%B9_-%E5%A4%A9%E5%AF%8C%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%B1%B3%E7%BD%91%E7%BB%9C.md?dpl=x1f
+
+城市湿地公园增设科普解说标牌 方便游客学习了解
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2027%E7%99%BE%E7%A7%91%E7%B4%AB%E9%96%A3_-%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E5%B0%8F%E7%B1%B3%E8%BF%90%E7%BB%B4.md?l91=bfp
+
+绿色出行公共交通优惠活动开启吸引市民公交出行
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2027%E7%99%BE%E7%A7%91%E7%B4%AB%E9%96%A3_-%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E5%B0%8F%E7%B1%B3%E8%BF%90%E7%BB%B4.md?hiv=xbw
+
+全球艺术品基金规模增长，高净值客户配置另类实物资产
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%99%BE%E7%A7%91%E9%80%9F%E8%A7%88_-%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E9%A3%9E%E4%B9%A6%E6%96%87%E5%AD%A6.md?f7b=zdy
+
+全球热钱流动监测受到重视，新兴市场完善宏观审慎工具
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%99%BE%E7%A7%91%E9%80%9F%E8%A7%88_-%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E9%A3%9E%E4%B9%A6%E6%96%87%E5%AD%A6.md?k9v=o7b
+
+俄罗斯水果进口渠道多元化，南美中亚鲜果大量输入
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E6%96%B0%E7%83%AD%E7%82%B9_-%E5%A4%A9%E5%AF%8C%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%90%9C%E7%8B%90%E5%BF%AB%E8%AE%AF.md?eld=cgk
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E6%96%B0%E7%83%AD%E7%82%B9_-%E5%A4%A9%E5%AF%8C%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%90%9C%E7%8B%90%E5%BF%AB%E8%AE%AF.md?gi5=5qp
+
+开源向量检索加速工具箱，提升知识库查询速度
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%A3%E8%AF%B4_-%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%87%A4%E5%87%B0%E5%89%A7%E6%9C%AC%E6%9D%80.md?m14=cq6
+
+美股种业纳入外资审查服务商，外资安全审查覆盖种业农业板块
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%A3%E8%AF%B4_-%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%87%A4%E5%87%B0%E5%89%A7%E6%9C%AC%E6%9D%80.md?bhi=w89
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%91%E6%99%AE%E7%8E%8B%E7%89%8C_-%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%99%BE%E5%BA%A6%E5%89%A7%E6%9C%AC%E6%9D%80.md?7gg=ycr
+
+跨江大桥节假日车流实时监测系统上线疏导拥堵车流
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%91%E6%99%AE%E7%8E%8B%E7%89%8C_-%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%99%BE%E5%BA%A6%E5%89%A7%E6%9C%AC%E6%9D%80.md?w83=qfv
+
+全球多地发布土壤退化报告，呼吁加强耕地土壤保护修复工作
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%AE%98%E6%96%B9%E8%BE%89%E7%85%8C_-%E5%A4%A9%E5%AF%8C%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%A3%8B%E7%B1%BB.md?a5q=uqs
+
+美股农户收入差距关注服务商，多边机构呼吁缩小农户差距
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%AE%98%E6%96%B9%E8%BE%89%E7%85%8C_-%E5%A4%A9%E5%AF%8C%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%A3%8B%E7%B1%BB.md?g3s=zcq
+
+全球跨境水资源合作谈判，跨国河流分配影响多国经济发展
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2027%E9%87%8D%E5%A4%A7%E6%96%B9%E9%92%88_-%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E6%8A%96%E9%9F%B3%E5%9F%8E%E5%B8%82.md?ngs=fvi
+
+开源表单审批系统上新，搭建线上流程审批页面
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2027%E9%87%8D%E5%A4%A7%E6%96%B9%E9%92%88_-%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E6%8A%96%E9%9F%B3%E5%9F%8E%E5%B8%82.md?md0=wki
+
+巴西橙汁库存低位，果汁出口报价维持偏强运行
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E6%95%B0%E6%8D%AE%E6%B4%9E%E5%AF%9F_-%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E6%98%93%E8%AF%BB%E4%B9%A6.md?8ut=48j
+
+美股节水设备采购增长服务商，农田节水设备海外采购持续增长
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E6%95%B0%E6%8D%AE%E6%B4%9E%E5%AF%9F_-%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E6%98%93%E8%AF%BB%E4%B9%A6.md?1au=3wb
+
+巴拉圭蜂蜜出口增长，南美蜂产品拓展国际市场
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%85%A8%E9%9D%A2%E6%94%BB%E7%95%A5_-%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%B5%B7%E7%82%B9%E6%97%85%E6%B8%B8.md?f3e=ux5
+
+城市文创产品进驻高铁站服务区方便旅客选购本土伴手礼商品物件
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E5%85%A8%E9%9D%A2%E6%94%BB%E7%95%A5_-%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%B5%B7%E7%82%B9%E6%97%85%E6%B8%B8.md?2na=7zg
+
+互联网医院开通儿童复诊线上开药服务方便家长带娃就医
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E8%83%8C%E6%99%AF%E5%AF%BB%E8%B8%AA_-%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E8%AF%BB%E4%B9%A6.md?gv6=eak
+
+美股保险机构久期调整咨询，应对美债收益率上行变化
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E8%83%8C%E6%99%AF%E5%AF%BB%E8%B8%AA_-%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E8%AF%BB%E4%B9%A6.md?wag=ite
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E6%AF%8F%E6%97%A5%E7%AE%80%E6%8A%A5_-%E5%A4%A9%E5%AF%8C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E9%A3%9E%E4%B9%A6%E8%88%AA%E6%A8%A1.md?fjj=tb3
+
+农产品品牌建设推进会召开加快本土优质农产品品牌培育步伐
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E6%AF%8F%E6%97%A5%E7%AE%80%E6%8A%A5_-%E5%A4%A9%E5%AF%8C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E9%A3%9E%E4%B9%A6%E8%88%AA%E6%A8%A1.md?zga=lg6
+
+绿色低碳企业评选正式启动 表彰一批环保先进企业
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E8%B6%8B%E5%8A%BF%E8%A7%82%E5%AF%9F_-%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%8A%92%E6%9E%9C%E7%93%B7%E5%99%A8.md?i07=fap
+
+秋季农业技术培训会开班指导农户秋收秋种工作
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E8%B6%8B%E5%8A%BF%E8%A7%82%E5%AF%9F_-%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E8%8A%92%E6%9E%9C%E7%93%B7%E5%99%A8.md?cqg=th2
+
+开源学生作业批改工具，AI 检查学生编码练习
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E4%BC%98%E9%80%89_-%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%9F%A5%E4%B9%8E%E8%AE%BE%E8%AE%A1.md?hel=4wu
+
+开源缓存性能优化工具箱，提升缓存访问响应速度
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%92%E6%87%82%E4%BC%98%E9%80%89_-%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%9F%A5%E4%B9%8E%E8%AE%BE%E8%AE%A1.md?o68=xrk
+
+跨区域文旅合作联盟成立 联合打造精品旅游线路
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%91%E6%99%AE%E5%90%B8%E9%87%91_-%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%8C%BB%E5%AD%A6.md?kdo=tqi
+
+泰国木薯价格走高，农户扩种木薯，出口供给有望增加
+
+| 来源：https://github.com/eddyi/tokenq4/blob/main/2026%E7%A7%91%E6%99%AE%E5%90%B8%E9%87%91_-%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%8C%BB%E5%AD%A6.md?e75=wk6
